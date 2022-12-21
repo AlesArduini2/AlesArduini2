@@ -19,7 +19,7 @@ Be water!
 
 ### My role as a project Manager
 
-**People development** - To promote in projects a safe environment, based on trust, transparency, teamwork and honesty; where the team is able to deliver the best they can and grow along the way;  
+**People development** - To promote a safe environment in projects, based on trust, transparency, teamwork and honesty; where the team is able to deliver the best they can and grow along the way;  
 
 **Results** - Be accountable and responsible for every project I'm involved in, being transparent regarding impediment and issues, also constantly sharing projects updates and status. 
 
